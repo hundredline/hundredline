@@ -4,6 +4,6 @@
 
     
 friendly boy swag  
-[rentry](https://rentry.co/prsk) [ata](https://isoru.atabook.org/) [brainrot corner](https://explosher.straw.page/)
+[rentry](https://rentry.co/prsk) [ata](https://isoru.atabook.org/) [brainrot corner](https://explosher.straw.page/) [statsfm](https://stats.fm/fujo)
 
 ![](https://komarev.com/ghpvc/?username=isoru&label=fujos&style=flat-square&color=gray)
