@@ -3,7 +3,6 @@
 ![](https://komarev.com/ghpvc/?username=isoru&label=hi+:D&style=flat-square&color=02b8ea)  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kfi5edyqaxydewo7hoco748lu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)   
 [rentry](https://rentry.co/prsk) [2nd rentry](https://rentry.co/truebond) [ata](https://izanami.atabook.org/) [brainrot](https://explosher.straw.page/) [strawpage](https://kajiren.straw.page)   
-yes i need 2
   
 
 ![](https://i.postimg.cc/6311x1nz/blinkies-Cafe-zr.gif)
