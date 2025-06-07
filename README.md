@@ -1,6 +1,7 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=isoru&label=hi+:D&style=flat-square&color=aee594)  
+![](https://komarev.com/ghpvc/?username=isoru&label=hey+whats+up+hello&style=flat-square&color=aee594)  
+![](https://s2.ezgif.com/tmp/ezgif-25756ba8e85e54.jpg)  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kfi5edyqaxydewo7hoco748lu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)   
 
 [ata](https://izanami.atabook.org/) [rentry](https://rentry.co/prsk)
