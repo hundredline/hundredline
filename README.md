@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=isoru&label=hi+:D&style=flat-square&color=aee594)  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kfi5edyqaxydewo7hoco748lu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)   
 
-[ata](https://izanami.atabook.org/) [rentry 1](https://rentry.co/prsk) [rentry 2](https://rentry.co/giftbox) [straw](https://kajiren.straw.page)
+[ata](https://izanami.atabook.org/) [rentry 1](https://rentry.co/prsk)
 
 
 ![](https://i.postimg.cc/6311x1nz/blinkies-Cafe-zr.gif)
