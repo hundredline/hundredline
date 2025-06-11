@@ -9,6 +9,8 @@
 
 ![](https://i.postimg.cc/6311x1nz/blinkies-Cafe-zr.gif)
 
+![](https://file.garden/aDT0Ck-AL1_uKJ4P/misc/haihia)
+
 <div align="left">
 <details>
 <summary>stamps</summary>
