@@ -4,5 +4,5 @@
 ![](https://file.garden/aDT0Ck-AL1_uKJ4P/rentry%20pictures/uke%20abuse)  
 
 defeat my three evil rentrys
-[one](https://rentry.co/prsk) [two](https://rentry.co/overdone) [three](https://rentry.co/itoshicest)  
+[one](https://rentry.co/prsk) [**two**](https://rentry.co/sern) [three](https://rentry.co/itoshicest)  
 [atabook](https://sern.atabook.org/) 
