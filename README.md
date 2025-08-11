@@ -1,5 +1,4 @@
-⠀⠀⠀⠀⠀⠀[please read ^_^](https://rentry.co/harming)
-
+⠀⠀⠀⠀⠀⠀⠀⠀[please read ^_^](https://rentry.co/harming)  
 ![](https://komarev.com/ghpvc/?username=yaoidemon&label=hi+friends&style=pixel&color=c57a7f&base=4000&abbreviated=true)  
 ![](https://file.garden/aDT0Ck-AL1_uKJ4P/rentry%20pictures/in%20love)   
 [rentry](https://rentry.co/prsk)⠀⠀‎｡‎⠀⠀‎[matching](https://rentry.co/sern)‎⠀⠀‎‎｡⠀⠀‎[atabook](https://sern.atabook.org/)⠀⠀  
