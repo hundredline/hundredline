@@ -4,6 +4,6 @@
 
 https://github.com/user-attachments/assets/f6ba962e-c931-4818-927a-3d96d43b69e9
 
-[rentry](https://rentry.co/finger) ‎ ‎‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎‎‎ ‎  ‎  ‎  ‎ [atabook](https://taku.atabook.org/)  
+[rentry](https://rentry.co/finger) ‎ ‎‎ ‎  ‎ ‎ ‎‎‎ ‎‎‎ ‎‎ ‎  ‎  ‎  ‎  ‎ ‎‎‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎‎‎ ‎‎‎ ‎‎‎ ‎‎ ‎  ‎  ‎ [atabook](https://taku.atabook.org/)  
 i do not move from the tree btw
 
