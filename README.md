@@ -1,4 +1,4 @@
 <div align="center">  
 
 ![](https://komarev.com/ghpvc/?username=hundredline&label=^,..,^‎‎‎‎&style=flat&color=d463fe&base=10040)  
-18yo proshipper . i like valorant
+18yo proshipper . she/he
